@@ -1,0 +1,3 @@
+I think i don't update this often.
+
+ChatGPT is soo dumb...
